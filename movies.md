@@ -47,3 +47,8 @@
 ### BBC幼儿英语启蒙动画《蔬菜恐龙 Vegesaurs》1-3季全集资源下载
 
 夸克网盘：https://pan.quark.cn/s/b02ca1834093
+
+
+### 美丽毒素 The Beauty 电影资源分享
+
+夸克网盘：https://pan.quark.cn/s/372d9e103fb0

@@ -82,3 +82,8 @@
 ### 唐顿庄园 (Downton Abbey) 全集资源下载：剧集+电影版 1+2 终极珍藏
 
 夸克网盘：https://pan.quark.cn/s/62c7fa3f0c27
+
+
+### 《恶之心》2024俄罗斯犯罪电视剧全5集超清中字资源下载
+
+夸克网盘：https://pan.quark.cn/s/6c73a971225c

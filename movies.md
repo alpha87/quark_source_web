@@ -42,3 +42,8 @@
 ### BBC儿童绘画启蒙动画《嘟乐的神奇画笔》：激发创意与艺术天赋
 
 夸克网盘：https://pan.quark.cn/s/3ac29fc05713
+
+
+### BBC幼儿英语启蒙动画《蔬菜恐龙 Vegesaurs》1-3季全集资源下载
+
+夸克网盘：https://pan.quark.cn/s/b02ca1834093

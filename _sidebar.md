@@ -1,0 +1,7 @@
+- [首页](/)
+- [影视资源](movies)
+- [学习资源](study)
+- [游戏资源](games)
+- [其他资源](others)
+- [电子书](ebooks)
+- [免责声明](disclaimer)

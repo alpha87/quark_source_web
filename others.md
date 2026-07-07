@@ -30,3 +30,8 @@
 ### 2月4日广B剧+有S剧单期合集
 
 夸克网盘：https://pan.quark.cn/s/fa0ff722d656
+
+
+### 2月5日广播剧与有声剧单期合集
+
+夸克网盘：https://pan.quark.cn/s/99aaf752aae9

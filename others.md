@@ -75,3 +75,8 @@
 ### 天后巨星邓紫棋经典歌曲无损大合集，超高音质享受
 
 夸克网盘：https://pan.quark.cn/s/2d2debf75e4a
+
+
+### 精选282首抖音KTV必点伤感热门歌曲
+
+夸克网盘：https://pan.quark.cn/s/3932ecbfa227

@@ -80,3 +80,8 @@
 ### 精选282首抖音KTV必点伤感热门歌曲
 
 夸克网盘：https://pan.quark.cn/s/3932ecbfa227
+
+
+### 马斯克2026最新访谈完整版+精华版中英双语资源下载
+
+夸克网盘：https://pan.quark.cn/s/ab0c8db4d2ab

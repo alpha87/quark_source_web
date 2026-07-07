@@ -52,3 +52,8 @@
 ### 美丽毒素 The Beauty 电影资源分享
 
 夸克网盘：https://pan.quark.cn/s/372d9e103fb0
+
+
+### 贝尔法斯特天堂路：北爱尔兰经典剧集深度解析
+
+夸克网盘：https://pan.quark.cn/s/c5ae8e193885

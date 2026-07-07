@@ -12,3 +12,8 @@
 ### 《大明风云录》
 
 夸克网盘：https://pan.quark.cn/s/cae60789d00e
+
+
+### 铁臂阿童木 (1980) 1080p国语+1080p高码日语 52集全
+
+夸克网盘：https://pan.quark.cn/s/d3c011ad193c
